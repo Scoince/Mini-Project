@@ -1,1 +1,1 @@
-# Currently Studying M.Tech in NIELIT imphal Manipur
+Currently Studying M.Tech in NIELIT imphal Manipur
