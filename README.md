@@ -1,1 +1,1 @@
-Currently Studying M.Tech in NIELIT imphal Manipur
+Project for 2nd sem M.Tech in NIELIT imphal Manipur
